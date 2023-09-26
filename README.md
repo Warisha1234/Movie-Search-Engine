@@ -6,7 +6,7 @@ DSA Project (Search Engine)
 
 Name Roll No![](Aspose.Words.7618dafd-9069-4966-87ba-2f8a970b712f.002.png)
 
-Zia-Ur-Rehman 1802034 Noman Shahzad 1802038 Muhammad Ali Raza 1802031
+Wareesha Habib 1802034 Noman Shahzad 1802038
 
 Submitted To:Malik-Jahan
 
